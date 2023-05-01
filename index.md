@@ -28,4 +28,4 @@ how to win tetra league real ways to win
 
 
 
-<div style="font-size: 1;">(this is a joke, and I do not endorse any of the actions above)</div>
+<div style="font-size: 0.1px;">(this is a joke, and I do not endorse any of the actions above)</div>
