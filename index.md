@@ -13,6 +13,9 @@ how to win tetra league real ways to win
 - ask them about their favourite book, then take advantage of their typing to win 
 - use your pieces to do a meme so degenerate that it makes them die of cringe 
 - photoshop the defeat screen 
+- gaslight them 
+- rickroll them so hard they die of rick overdose 
+- bribe osk to disconnect them 
 - cheat 
 
 
