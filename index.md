@@ -1,4 +1,4 @@
-how to win tetra league real ways to win 
+how to win tetra league real ways to win (do these in order until you win)
 - ddos your opponent's ip 
 - steal their laptop 
 - blow them up 
