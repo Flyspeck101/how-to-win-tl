@@ -19,7 +19,7 @@ how to win tetra league real ways to win (do these in order until you win)
 - photoshop the defeat screen 
 - cheat 
 
-
+endorsed by [zudo](image.png)
 
 
 
