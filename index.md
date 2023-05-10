@@ -1,3 +1,8 @@
+<head>
+    <meta content="How to win in Tetra League" property="og:title" />
+    <meta content="Real 100% ways to win in tetrio tetra league" property="og:description" />
+</head>
+
 how to win tetra league real ways to win (do these in order until you win)
 - ddos your opponent's ip 
 - steal their laptop 
