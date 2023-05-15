@@ -7,16 +7,19 @@ how to win tetra league real ways to win (do these in order until you win)
 - ddos your opponent's ip 
 - steal their laptop 
 - blow them up  
-- summon a cat onto their keyboard 
+- summon a fluffy cat onto their keyboard 
 - trick them into unplugging their ethernet cable 
 - eat their ethernet cable 
 - throw a brick at their laptop 
 - inject a virus into their laptop 
+- inject literal acid into their laptop 
 - invert their keyboard wiring 
 - feed them one of Hagrid's rock cakes 
 - disconnect their region's spool server from tetrio main server 
 - ask zeus really really nicely to summon a lightning bolt to electrocute them 
 - nuke them
+- feed them pure sulfuric acid 
+- feed them pure caesium hydroxide
 - ask them about their favourite book, then take advantage of their typing to win 
 - use your pieces to do a meme so degenerate that it makes them die of cringe 
 - gaslight them 
