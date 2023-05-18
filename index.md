@@ -13,6 +13,7 @@ how to win tetra league real ways to win (do these in order until you win)
 - throw a brick at their laptop 
 - inject a virus into their laptop 
 - inject literal acid into their laptop 
+- inject literal acid into _them_
 - invert their keyboard wiring 
 - feed them one of Hagrid's rock cakes 
 - disconnect their region's spool server from tetrio main server 
@@ -26,6 +27,7 @@ how to win tetra league real ways to win (do these in order until you win)
 - rickroll them so hard they die of rick overdose 
 - bribe osk to disconnect them 
 - photoshop the defeat screen 
+- u n o   r e v e r s e   c a r d
 - cheat 
 
 endorsed by [zudo](image2.png), [zaptorzap](image.png), [opyu](opyu.png), [ivan28283](ivan.png), [dr ocelot](ocelot.png), [minty](minty.png), [meehee](meehee.png), [pedguh](pedguh.png)
